@@ -1,0 +1,1 @@
+this recipe is all about how to make perfect, crispy and tangy kale chips! Make sure to read carefully and enjoy! This recipie is best as a snack otherwise you can have it for lunch with some other food.

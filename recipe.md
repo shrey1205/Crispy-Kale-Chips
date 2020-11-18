@@ -1,0 +1,4 @@
+Preheat oven to 350 degrees. Wash the kale then gently pat it dry. Remove the tough stem from each leaf, then tear the leaves into large pieces (they will shrink when they bake).
+In a large bowl drizzle the olive oil onto the kale, using your hands to massage the oil into the leaves. Sprinkle the cumin and paprika onto the kale, you may need to use your hands to evenly distribute the spices.
+Lay out the leaves on a baking sheet covered in parchment or a silpat. Dust with sea salt, then bake for about 16 minutes, turning after 8 minutes. Leaves should be crisp and curled at the edges.
+Enjoy as a snack or with your sandwich at lunchtime!
